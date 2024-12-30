@@ -8,5 +8,5 @@ USED OMLY HTML AND CSS
 ![images (2)](https://github.com/user-attachments/assets/bf75d11a-b91e-4578-9a4b-9974a5bcd892)
 ![GuviCertification - 1h61Gc162919J64lim](https://github.com/user-attachments/assets/f8fd9ed0-ba94-4fb5-b435-109437bd98dd)
 ![GuviCertification - 61A9162j5788fw06P7](https://github.com/user-attachments/assets/0eca10a5-9f73-471a-97eb-89d7443aeab3)
-![offerletter](https://github.com/user-attachments/assets/febdd3ae-f723-4273-afc5-761ab773f389)
 ![2](https://github.com/user-attachments/assets/cce293e8-4d5c-4e57-a475-e410bf3d6f3e)
+![3](https://github.com/user-attachments/assets/687af803-5380-4576-ad19-f72ff6ab5df4)
